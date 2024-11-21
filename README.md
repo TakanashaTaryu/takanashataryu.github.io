@@ -1,0 +1,1 @@
+# takanashataryu.github.io
